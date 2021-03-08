@@ -1,1 +1,1 @@
-# Self-directed Projects
+# Self-directed projects
